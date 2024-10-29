@@ -360,7 +360,7 @@ F：我可真是个好演员。
 (4)damn=really
 
 ### 2024.10.27
-请假玩cambria测试
+请假玩cambria测试 ,玩了8000多皇家积分
 
 ### 2024.10.28
 good good study , day day up.
